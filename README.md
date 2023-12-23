@@ -1,7 +1,7 @@
 # app-therapy-underground
 Working therapists with qualities that claim to provide better care to their patients but whose practices are sometimes called into question.
 
-illegal therapy. find illegal therapists.
+illegal therapy. find illegal therapists. throw them in jail.
 
 first
 1. find friends
