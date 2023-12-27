@@ -35,9 +35,15 @@ There is a record of JEWS being targeted by ALL AMERICAN institutions from the H
 The entire medical industry is focused on ONE thing. And it is evil.
 
 LOVE = LOVE
+
 THERE IS NO GOD
+
 SATAN ISNT THAT BAD
+
 WE KILLED GOD
+
 WHOS HECATE?
+
 THERAPY SCAMS
+
 EVERYTHING IS THERAPY
