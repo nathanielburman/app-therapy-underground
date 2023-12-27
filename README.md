@@ -33,3 +33,11 @@ Therapists and all medical professionals apart of the insurance scam that is the
 There is a record of JEWS being targeted by ALL AMERICAN institutions from the HIGHEST LEVELS of office in the land.
 
 The entire medical industry is focused on ONE thing. And it is evil.
+
+LOVE = LOVE
+THERE IS NO GOD
+SATAN ISNT THAT BAD
+WE KILLED GOD
+WHOS HECATE?
+THERAPY SCAMS
+EVERYTHING IS THERAPY
